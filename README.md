@@ -4,6 +4,6 @@
 
 - this This is my telegram profile : @Elgokar_1
 
-this link my group telegram : https://t.me/Elgokar11
+this link my group telegram : ***
 
 I love you 💞💛
